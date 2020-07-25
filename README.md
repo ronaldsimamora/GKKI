@@ -5,6 +5,7 @@ Projek dibuat mulai tangga 25 Juli 2020
 
 Lagu Pujian:
 1. Terima Kasih Yesus
+
 Yang dulu tak kumengerti,
 S'karang Kau buat mengerti,
 Kau singkapkan mataku,
